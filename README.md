@@ -1,4 +1,4 @@
-![Phathu Mandane](/home/phathu/Downloads/PhathuMandaneDesigns.png)
+
 
 <h2> Hey! there </h2>
 
